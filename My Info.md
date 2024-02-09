@@ -1,4 +1,4 @@
-👋 Hello, I'm @dsam994.
+👋 Hello, I'm Divine Sam.
 
 👀 I'm interested in leveraging data to derive insights and solve real-world problems.
 
